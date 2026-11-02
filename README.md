@@ -2,6 +2,8 @@
 
 Saya ialah watak utama dalam Cerita Orang Kota Bharu, sebuah projek kreatif yang mengambil ilham daripada kehidupan masyarakat Melayu di Kelantan. Saya seorang lelaki pertengahan 30-an yang menetap di Kota Bharu dan bekerja sendiri. Hari-hari saya diisi dengan kerja kreatif, urusan keluarga, kawan lama dan rancangan yang kadang-kadang berubah selepas satu panggilan daripada mak.
 
+![Minum kopi dulu](https://github.com/afeezaziz/afeezaziz.github.io/blob/main/images/20261102-01.png?raw=true)
+
 Saya suka mengambil gambar, menulis dan mencuba sesuatu dengan komputer. Ada masanya saya menghasilkan laman sesawang atau alat kecil untuk memudahkan kerja. Ada masanya saya keluar membawa kamera, kemudian pulang dengan lebih banyak cerita daripada gambar.
 
 Perhatian saya sering tertarik kepada perkara yang dekat dengan kehidupan kita: kedai yang sudah lama dibuka sebelum kita bangun, baju Melayu yang masih disimpan mak, kawan yang pandai mengusik dan barang lama yang masih elok digunakan.
